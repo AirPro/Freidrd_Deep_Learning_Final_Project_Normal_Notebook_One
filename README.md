@@ -1,0 +1,1 @@
+# Freidrd_Deep_Learning_Final_Project_Normal_Notebook_One
